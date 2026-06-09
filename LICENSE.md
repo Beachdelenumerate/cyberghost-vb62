@@ -1,4 +1,4 @@
-
+Get the ultimate CyberGhost extension with CyberGhost updated Extension: smart-DNS & ad-blocker. Featuring smart-DNS and ad-blocker, it's the best choice for secure and private
 
 
 
